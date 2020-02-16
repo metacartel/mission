@@ -1,4 +1,4 @@
-# MetaCartel’s Declaration of Coordination
+# MetaCartel Lore
 
 > “The ones who are battle tested, the ones that lie ready, the ones who study terrain ahead, the ones who lead forward without hesitation, the ones that seize the opening, the ones that live boldly, the ones who dare. Mobilised. Coordinated. This is what a winning side looks like.”
 > 
