@@ -13,3 +13,7 @@ Being community first means that we always strive to acknowledge and reward thos
 Being community first is following our heart, using our head, and listening to our gut.
 
 If you want to go fast, go alone. If you want to go far, go together.
+
+---
+
+Thanks to all contributors: Q, BurningFiat, Burrrata, MetaDreamer, Dekan (add yourself)
