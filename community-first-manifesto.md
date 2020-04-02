@@ -1,3 +1,5 @@
+Thanks to all contributors: Q, BurningFiat, Burrrata, MetaDreamer, Dekan (add yourself)
+
 # Community first manifesto
 
 Our community comes first. We put values, missions, and problems ahead of our solutions.
@@ -14,6 +16,3 @@ Being community first is following our heart, using our head, and listening to o
 
 If you want to go fast, go alone. If you want to go far, go together.
 
----
-
-Thanks to all contributors: Q, BurningFiat, Burrrata, MetaDreamer, Dekan (add yourself)
