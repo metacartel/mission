@@ -1,4 +1,4 @@
-Thanks to all contributors: Q, BurningFiat, Burrrata, MetaDreamer, Dekan (add yourself)
+Thanks to all contributors: Q, BurningFiat, MetaDreamer, Dekan (add yourself)
 
 # Community first manifesto
 
