@@ -2,7 +2,9 @@
 
 > “The ones who are battle tested, the ones that lie ready, the ones who study terrain ahead, the ones who lead forward without hesitation, the ones that seize the opening, the ones that live boldly, the ones who dare. Mobilised. Coordinated. This is what a winning side looks like.”
 > 
-As long as you are dedicated to winning, we want you amongst us. We are the crazy, we are ones who embrace risk. We believe in the outlier and we are committed to it. We are a community dedicated to the vision of an open internet of value. A fairer and richer world for all.
+As long as you are dedicated to winning, we want you amongst us. We are the crazy, we are ones who embrace risk. We believe in the outlier and we are committed to it. 
+
+We are a community dedicated to the vision of an open internet of value. A fairer and richer world for all.
 
 We believe Web 3 will enable communities and individuals to coordinate value in highly in-efficient markets, that are otherwise unviable. While these individual markets may be small, in the aggregate, the net potential unlocked will change the fundamental economics of work, government and our way of life. The underlying theme in Web 3 is coordination. The coordination and composability of programmable money, social capital, effort and labor, debt, time, curation, financial risk, attention, content creation and everything in between. DAOs will change our fundamental understanding of what online communities are, how they coordinate and what they are capable of. These crypto-communities will become the next cultural and economic epicenters of the open internet.
 
