@@ -1,5 +1,7 @@
 Thanks to all contributors: Q, BurningFiat, MetaDreamer, Dekan (add yourself)
 
+Date: April 2020.
+
 # Community first manifesto
 
 Our community comes first. We put our values, missions, and problems ahead of our solutions.
