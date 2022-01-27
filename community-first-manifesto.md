@@ -12,7 +12,7 @@ Being community firsts means that the relationships with each other as a communi
 
 Great communities are co-created together.
 
-Being community first is about building out in the open. You can only mobilize and empower a community to contribute when information flows efficiently and freely. Our future vision and direction are decentralized, iterative and driven by its members, not premeditated. Our success will emerge from the community’s own willingness to contribute, self organize and collaborate. Our strengths lie in being flexible and tolerate of the chaos that comes along with community ownership.
+Being community first is about building out in the open. You can only mobilize and empower a community to contribute when information flows efficiently and freely. Our future vision and direction are decentralized, iterative and driven by its members, not premeditated. Our success will emerge from the community’s own willingness to contribute, self organize and collaborate. Our strengths lie in being flexible and tolerant of the chaos that comes along with community ownership.
 
 Being community first means that we always strive to acknowledge and reward those who have contributed. We provide opportunities to value-aligned individuals who want to contribute no matter who they are or where they are from. We get excited when others create value before we can. We believe the project’s success is determined by the community members' standards. Not numbers nor anything else. We believe in community wellbeing, happiness, and productivity.
 
