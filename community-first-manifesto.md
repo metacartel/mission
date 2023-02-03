@@ -8,7 +8,7 @@ Our community comes first. We put our values, missions, and problems ahead of ou
 
 Being community first means creating something people want to be a part of and can thrive in, it means silently sacrificing individual gains for the collective good, it means prioritizing long term positive-sum outcomes. The success of our communities will entirely depend on the strength of relationships that we help foster between not only ourselves, and but amongst community members.
 
-Being community firsts means that the relationships with each other as a community, are the most important resource we have. Our users, customers, investors, and community contributors are our peers: we are them and they are us. Oftentimes, this means allowing ourselves to be led by the community around us. It means that those around us are able to have input on key collective decisions. It means that our leaders are okay with not always being in charge. 
+Being community first means that the relationships with each other as a community, are the most important resource we have. Our users, customers, investors, and community contributors are our peers: we are them and they are us. Oftentimes, this means allowing ourselves to be led by the community around us. It means that those around us are able to have input on key collective decisions. It means that our leaders are okay with not always being in charge. 
 
 Great communities are co-created together.
 
